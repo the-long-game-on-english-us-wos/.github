@@ -8,7 +8,7 @@ The Long Game (2025) is a tragic action-drama film directed by *Ava Martinez. Th
 
 ### [➤ ►🌍📺📱👉   The Long Game (2025) F𝚞ll Mo𝚟ie Downl𝚘ad](https://rb.gy/mv5471)
 
-[![watch_full_movie](#GAMBAR#)
+[![watch_full_movie](https://media.themoviedb.org/t/p/w533_and_h300_bestv2/v81YCuhRrsOHaBhxzdppsRTSLFS.jpg)
 
 ## 📖 Plot Overview
 
